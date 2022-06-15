@@ -7,6 +7,6 @@
 - 👯 I’m looking to collaborate on business prospect 
 - 🤔 I’m looking for passionate and bright future
 - 💬 Ask me about money and data science
-- 📫 How to reach me: Lets collaborate: https://www.linkedin.com/in/faiz-hadiyan-firza/
+- 📫 How to reach me: Lets collaborate: [Here!](https://www.linkedin.com/in/faiz-hadiyan-firza/) 
 - 😄 Hobby: Thinking and trying something new
 - ⚡ Fun fact: Life after college is 100x harder
